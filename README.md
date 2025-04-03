@@ -30,3 +30,7 @@ Cara Menggunakan
 
 🖼️ Screenshot Tambahan
 ![image](https://github.com/user-attachments/assets/22f0ba80-3e7d-4a64-87df-c05ca956ca57)
+
+✉️ Kontak
+Untuk pertanyaan lebih lanjut, hubungi:
+axeltheowinataursia_22262401117@mhs.mdp.ac.id
